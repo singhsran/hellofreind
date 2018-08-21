@@ -3,9 +3,8 @@ Ramanjeet Singh Sran
 "If someone throws a brick on you , do not throw a rock back , make your home from that brick...."
 "Time is precious , waste it wisely"
 
-Balram Sharma 1893647 " People who fly into a rage have a bad landing"
+AMAN 1892606 "TALK IS CHEAP SHOW ME THE CODE"               
 
 Ramandeep kaur
 1892891
 "Love is unconditional"
-
